@@ -10,6 +10,6 @@
 # WARNING: 
 > **I don't promote any illegal activities with this tool. It's only for entertainment purpose. So I will not be responsible for any illegal activities done by this tool.**
 ***
-# Thank You For Using My Tool! 😊
+# Thank You! 😊
 # Preview:
 ![Preview](https://user-images.githubusercontent.com/73626726/123516308-3e75c280-d6bd-11eb-98c0-967ddaa3885d.PNG)
