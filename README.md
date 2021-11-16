@@ -12,4 +12,4 @@
 # Thank You! Enjoy!!😊
 ***
 # Preview:
-![preview](https://user-images.githubusercontent.com/73626726/141162675-b9b76747-dbe9-457f-9240-057c40297fc9.png)
+![preview](https://user-images.githubusercontent.com/73626726/141973403-574a9208-3a0b-45b3-bfaa-a441c20a0287.png)
